@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with quantitative scalping bot for derivatives Strategy | low-frequency + liquidation-sniping, the #1 scalping bot for derivatives. Includes low-frequency and
 
 
 
